@@ -10,3 +10,4 @@
 bitgirl64/bitgirl64 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+my ether has been turned into so much garbage its pathetic so much for sharing the wealth its out there on gambling platforms nasty tokens and coins that dont maje much sence to me anymore they movedtoday  i dont knowwhere to start it said that i had good bit of crupto moved from my coinbase account today itwasnt me I know that alot of it so many profiting from my initialinvestment but i sit and havent got hardly squat for my investment   other greedy pigs sure have tho    I hate gambling too w a passion 
